@@ -57,7 +57,7 @@ DOVE加速器优势：
 ![2024-07-15 09 42 07](https://github.com/user-attachments/assets/7f868da1-8e04-4448-9d62-4dae48dcf922)
 
 ### 2.NICloud节点梯子
-### [点击直达](https://dove8.cc/a.php?alavBTtF8UB )
+### [点击直达官网](https://dove8.cc/a.php?alavBTtF8UB )
 
 NICloud节点梯子优点：
 **√**年付套餐免费赠送ChatGPT账号，发工单给客服秒回；
@@ -68,7 +68,7 @@ NICloud节点梯子优点：
 **√**所有付费节点均可解锁奈飞NetFlix/HULU/HBO等国外流媒体；
 
 ### 3.SYCloud节点梯子
-### [点击直达](https://dove8.cc/a.php?alavBTtF8UB )
+### [点击直达官网](https://dove8.cc/a.php?alavBTtF8UB )
 
 SYCloud节点梯子优点;
 **√**流量吃到饱，套餐档次分明，丰俭由人；
